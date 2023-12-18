@@ -1,1 +1,0 @@
-Ejercicio 02 resuelto 2 veces con variantes.
